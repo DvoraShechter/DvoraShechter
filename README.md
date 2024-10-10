@@ -2,7 +2,7 @@
 
 Thank you for visiting my GitHub profile! 
 
-Feel free to follow us at my new profile: [DvoraShechter1](https://github.com/DvoraShechter1).
+Feel free to follow me at my new profile: [DvoraShechter1](https://github.com/DvoraShechter1).
 
 Stay tuned for more updates and projects!
 
